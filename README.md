@@ -1,4 +1,4 @@
 # ideal-chainsaw-with-wings-bc-redbull
 nothing rlly
 
-[google.com](google.com)
+[Visit Google](https://www.google.com/)
